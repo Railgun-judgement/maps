@@ -20,3 +20,8 @@ yahoo地図やMapfanを見てこう思った <br>
 とり <https://twitter.com/micokuro> <br>
 めいすきー <https://misskey.m544.net/@Railgun_Judgment> <br>
 まちトドン <https://matitodon.com/@uiharu_saten>
+# 実は...
+御坂美琴のなりきりやってます <br>
+<https://twitter.com/toaruden> <br>
+<br>
+電気を大切にね！⚡
