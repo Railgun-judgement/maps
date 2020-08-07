@@ -11,11 +11,12 @@ yahoo地図やMapfanを見てこう思った <br>
 <https://sites.google.com/view/routenickname/> <br>
 (リンク先のRead meを最初にお読み下さい)
 # 製作者について
-ペンネーム : toaruden <br>
+ペンネーム : Toaruden <br>
 地図好きのとあるシリーズ好き,岐阜県在住. <br>
 原作は持っていません(火の車) <br>
 村民にも町民にも市民にもなった人,早く区民になりたい.
-御坂美琴推し,実は俺もツンデレ...
+御坂美琴推し,実は俺もツンデレ...？<br>
+変態なので要注意
 # SNS
 とり <https://twitter.com/micokuro> <br>
 めいすきー <https://misskey.m544.net/@Railgun_Judgment> <br>
